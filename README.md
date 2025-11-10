@@ -2,6 +2,7 @@
 
 
 boss , emrys or isaac
+
 he thou
 
 usually in the mha / mcyt area, but i'll also sit wherever my friends want to
