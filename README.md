@@ -1,4 +1,4 @@
-![ryomen](https://magma.com/shared/lsvYEwWc42kRUj5S53ZXhz)
+![shuumei](https://magma.com/shared/Aappe-PrNJeKJ3azqIRXvD)
 
 
 boss , emrys , lucifer or isaac
@@ -17,4 +17,4 @@ yumeshipper, [yume list](https://rentry.co/bpdyumeship)
 basic dni, excusionists dni, syscourse dni, i block freely however
 
 
-![sukuna](https://magma.com/shared/PM70j0lpEVJyNgGhMijLjT)
+![sasaki](https://magma.com/shared/XCULB7Vpe-TvXkSZBNIKWj)
