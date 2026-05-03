@@ -1,4 +1,4 @@
-![shuumei](https://magma.com/shared/Aappe-PrNJeKJ3azqIRXvD)
+![LOSER](https://magma.com/shared/Y-YlVmn3xY6NXymgT7Vv6T)
 
 
 boss , emrys , lucifer or isaac
@@ -14,7 +14,7 @@ c+h okay if fandom c:
 
 yumeshipper, [yume list](https://rentry.co/bpdyumeship)
 
-basic dni, excusionists dni, syscourse dni, i block freely however
+basic dni, excusionists dni, syscourse dni, i block freely
 
 
-![sasaki](https://magma.com/shared/XCULB7Vpe-TvXkSZBNIKWj)
+![ON LINE](https://magma.com/shared/FRa1CeTLaffFpTCmnJjbgT)
